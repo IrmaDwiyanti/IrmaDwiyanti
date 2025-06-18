@@ -8,7 +8,7 @@ Minat saya pada frontend developer
 
 Saya pernah membuat projek website portal berita.<br>
 
-Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin]([https://www.instagram.com/irmadwyt_?igshid=MzNlNGNkZWQ4Mg%3D%3D](https://www.linkedin.com/in/irma-dwiyantii/)) ku ya.
+Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/irma-dwiyantii/) ku ya.
 
 
 <p align="left">
